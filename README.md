@@ -1,6 +1,4 @@
 <p align="center">
-<img width="422" height="422" src= "https://media.discordapp.net/attachments/707075992002494477/1143084532904513587/Untitled79_20230821152858.png"
-  </p>
   <br> ++ MONA <s>MYTHOS</s> <img src= "https://i.imgur.com/HMSVQX9.gif"> they \ it \ luv \ moon
 </br>
 <s>PRO</s>F. DX <i>OSDD</i>-<b>1B</b> . <b><s>TRAUMA</s>GENIC</b> <img src= "https://i.imgur.com/wYTeoyp.gif"> <i>INTROJ. HEAVYY</i>
